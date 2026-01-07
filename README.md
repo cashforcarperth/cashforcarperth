@@ -1,16 +1,18 @@
-## Hi there 👋
+# Cash For Cars Perth - Professional Car Removal 🚗
 
-<!--
-**cashforcarperth/cashforcarperth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## 📍 Serving All Perth Suburbs & Western Australia
+We provide eco-friendly car recycling and instant cash for cars throughout the Perth metropolitan area. From scrap metal recycling to unwanted vehicle removal, we help WA residents clear their driveways and get paid on the spot.
 
-Here are some ideas to get you started:
+### 🛠 Services We Offer
+- **Instant Cash for Cars:** Up to $9,999 for all makes and models.
+- **Free Car Removal:** Same-day towing from Joondalup to Rockingham.
+- **Eco-Friendly Wrecking:** Responsible recycling of scrap metal and fluids.
+- **Unwanted Van & 4WD Removal:** We buy commercial vehicles in any condition.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 🔗 Official Business Links
+- **Main Website:** [Cash For Cars Perth](https://www.cash-for-car-perth.com.au/) 👈
+- **Service Areas:** [View Perth Suburbs We Cover](https://www.cash-for-car-perth.com.au/service-areas/)
+- **Contact Us:** [Get a Free Quote Online](https://www.cash-for-car-perth.com.au/contact-us/)
+
+### 🌏 Location
+Based in **Perth, Western Australia**, we are committed to keeping WA green through sustainable automotive dismantling.
